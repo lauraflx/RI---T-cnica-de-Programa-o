@@ -1,1 +1,1 @@
-# RI---T-cnica-de-Programa-o
+# RI - Tecnica-de-Programa-o
